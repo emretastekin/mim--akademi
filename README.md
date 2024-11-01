@@ -1,3 +1,3 @@
 Mim Akademi
 
-ilantahtamiz.com
+https://ilantahtamiz.com/
