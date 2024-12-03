@@ -1,3 +1,3 @@
-Mim  Akademii
+Mim  Akademi
 
 https://ilantahtamiz.com/
